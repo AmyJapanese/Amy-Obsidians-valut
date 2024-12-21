@@ -1,0 +1,1 @@
+・shujinnkou ha rakkann shugi sha toshite shuui wo innsupaia shi , jibunn ga tadashii to omou koto wo sugusama jikkou shi masu .
